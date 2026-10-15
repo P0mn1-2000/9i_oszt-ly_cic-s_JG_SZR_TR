@@ -1,0 +1,2 @@
+# 9i_oszt-ly_cic-s_JG_SZR_TR
+Jenei Gergő, Szita Róbert, Tóth Romeó
